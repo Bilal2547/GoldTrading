@@ -1,0 +1,2 @@
+# GoldTrading
+Ayo join investasi 
